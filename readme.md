@@ -1,2 +1,2 @@
-# The MWatch v.2 - The absolute Latam DIY watch
+# The MWatch V2 - The absolute Latam DIY watch
 
